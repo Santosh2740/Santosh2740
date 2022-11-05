@@ -24,7 +24,7 @@ Dedicated Java Backend Developer with proven performance in management, communic
 <p align="left">
 
 <a href="https://www.linkedin.com/in/santosh-kumar-ba4b6719a" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="nafisa-parveen-4a561922b" height="30" width="40" /></a>
-<a href="" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/hackerrank.svg" alt="@arshirayeen700" height="30" width="40" /></a>
+
 </p>
 
 

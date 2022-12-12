@@ -16,7 +16,7 @@ Dedicated Java Backend Developer with proven performance in management, communic
 
 - 👨‍💻 Checkout my [ Portfolio ](https://santosh2740.github.io/santosh0291-portfolio/) &nbsp; <img width="15" src="https://i.gifer.com/origin/b3/b34dc1592ae8556da933835c0d532738_w200.webp">
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1pXHbpi9P9jslN9XUnTAzmv1fvXiKKmPb/view?usp=sharing) &nbsp; <img width="15" src="https://i.gifer.com/origin/b3/b34dc1592ae8556da933835c0d532738_w200.webp">
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1lPWXM9Vr-I2YZKgRv0vQtn9huZtti2-L/view?usp=share_link) &nbsp; <img width="15" src="https://i.gifer.com/origin/b3/b34dc1592ae8556da933835c0d532738_w200.webp">
 
 - 📫 How to reach me **santoshvishwa1572@gmail.com**  &nbsp; <img width="15" src="https://i.gifer.com/origin/b3/b34dc1592ae8556da933835c0d532738_w200.webp">
 
